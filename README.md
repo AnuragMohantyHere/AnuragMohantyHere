@@ -6,8 +6,6 @@
 
 🚀 Passionate about learning
 
-🌱 Currently learning DSA
-
 💬 Ask me about... just kidding
 
 📫 Reach me at -
